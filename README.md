@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @telibah
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ... 628183269
-- 📫 How to reach me ...
+- 👀 I’m interested in ... OpenAI
+- 🌱 I’m currently learning ... Tellyum Slam Poetry
+- 💞️ I’m looking to collaborate on ... (+224)628 18 32 69 | (+224) 627 47 94 97
+- 📫 How to reach me ... ibtelibha@gmail.com
 
 <!---
 telibah/telibah is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
