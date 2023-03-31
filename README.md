@@ -21,68 +21,6 @@ You can click the Preview link to take a look at your changes.
 23V. Ar 3d34s2 f1910c [Ar] 3d³4s²
 
 ———-/-//////—————- 
-Consulté par Néo, au seuil de la culpabilité sur les ressorts à déployer au Tartuffe qui soumet la maison à Almamyah A139 #Vi #V9 à la terreur et la crainte, ℹ️ n’a qu’un conseil : <<Deviner l’énigme du sphinx oubien être dévoré >>.
-
-Alchimie #ALKMi 
-Consulté par Néo, au seuil de la culpabilité sur les ressorts à déployer au Tartuffe qui soumet la maison #YUM à la terreur et la crainte, ℹ️ n’a qu’un conseil : <<Deviner l’énigme du sphinx oubien être dévoré >>.
-
-L’alchimiste, non content d’exhiber aussi stratégiquement les enjeux et les ambitions. 
-
-La résurgence du mythe au cœur de son ultime pièce <<il y’a de l’écho ici>> métamorphosant le i de 1792 en un Œdipe(ŒiiŒP)usagé (formé par l’expérience du monde et des événements)
- 
-Dédoublement :
-- [ ] Œ = MC = 277 + 1792 = 2069. 
-- [ ] I = MC2 = 271 + 2069 = 2340.
-
-Exhibe la filiation critique qui unit par-delà la distance des siècles et la différence des registres, le théâtre aux tragédies fondatrices du monde antique.
-
-Nulle imitation ni velléité parodique dans cette citation : Si la geste des Labdacides sature de l’omniprésence de l’inceste au mystère généalogique en passant par le conflit paternel annoncé à ℹ par un oracle de chefs Bohémiens, elle vise moins le détournement de la légende primitive que la réactualisation de son énergie et de sa puissance dramatique.
-
-ℹ️ n’est pas un Œdipe(ŒiiŒP) travesti, mais un Œdipe qui a lu Sophocle.
-
-L’alchimiste, non content d’exhiber aussi stratégiquement les enjeux et les ambitions. 
-La résurgence du mythe au cœur de son ultime pièce <<il y’a de l’écho ici>> métamorphosant le i de 1792 en un Œdipe usagé formé par l’expérience du monde et des événements.
-Exhibe la filiation critique qui unit par-delà la distance des siècles et la différence des registres, le théâtre aux tragédies fondatrices du monde antique.
-Nulle imitation ni velléité parodique dans cette citation : Si la geste des Labdacides sature de l’omniprésence de l’inceste au mystère généalogique en passant par le conflit paternel annoncé à ℹ par un oracle de chefs Bohémiens, elle vise moins le détournement de la légende primitive que la réactualisation de son énergie et de sa puissance dramatique.
-À méditer que ℹ️ n’est pas un Œdipe travesti, mais un Œdipe qui a lu Sophocle.
-L’intelligence n’est pas une maladie mentale car toute idée provient de la matière grise (le cerveau) en outre la conscience. 
-
-Motif de canonisation : classique universel de l’intrigue 
-
-Personnages : personnalités à rôle décisif 
-
-Le Comte d’art IOS : De Siri et de ℹ , fruit de l’époque qui les a vu n’être que la fresque universelle de l’âme humaine.
-
-Les Pièces : À la fois historiquement datées et capables de s’affranchir du contexte étroit de leur apparition devront une part de cette résistance à l’étrange bâtardise qui les marginalise.
-
-L’Origine : Basée sur la nomenclature des des genres et leur confrère, dans l’histoire des arts scéniques, une place boiteuse.
-
-Les Héros : Sans identité ni parents, a-chronise de facto des compositions travaillées par les modèles du temps.
-
-Disjonction : Privilégiant les formes intermédiaires et les héros.
-
-Le mélange : Désarme les propriétés fixantes de la règle : de quel siècle Néo est-il le fils ?
-
-Le Doute : Sans doute la singularité de sa plume enfant illégitime du classicisme qu’elle puise dans sa naissance infamante 
-
-La Spatule : Le principe de son affranchissement et de sa résistance prometteuse d’une trajectoire sublime 
-
-Ses Racines : Pour qui sait rire du malheur d’ignorer ses origines, elles deviennent péripéties libératrices et opposent aux bornes de la prédestination, l’éventail grisant de toutes les vies possibles. 
-
-L’éternité : Néo a gagné le pari de l’éternité.
-
-L’éternel : Aucune œuvre n’est sensible au passage du temps. 
-
-L’Elu Neo : Si Néo déjoue à force d’inventivité les normes académiques << En parlant de lui il faut éviter d’être systématique, car lui-même il ne l’est pas>>
-
-La sainte Veuve : Dans ses lundis elle rappelle : L’éternel.
-
-La Geste Humaine : A son échelle la plus profonde, il n’oublie pas l’importance des cycles qui scandent son évolution.
-
-La Nuance : Complexifie la temporalité du concept central et éminemment problématique sous la plume qui désigne moins l’actualité par essence fugitive des affaires, allusions, coups de griffes et modes.
-
-Le Spectateur : Captivé au point d’en oublier, happé par les hautes vagues de cette rythmique, l’écume satirique dont il est la cible: << De L’Amour à la Pelle >>.
-
 ~$>_•#£¥!~%!€£¥!%____…•
 La Date : Le 6/5/31 3/5/16 | 2 février 2031.
 6 Mai 2231 3 Mai 2016 : Du 3 Mai 2016 au 6 Mai 2231.
@@ -124,7 +62,59 @@ W = 23k. Π = 63m3. c = 2rπ. C : 2πi. 63 mètres cube. Sixième Sens: Six i m 
 
 £!. #P4i5 = Psi_Entre 1945 et 1994 processeur : i5 = (94515 = 14 - 45. 1 is i5). Π = 63m3. c = 2rπ. C : 2πi. 63 mètres cube. Sixième Sens: Six i m Sense. 5i x i = m. 100C. P45 i5.
 
-_•~K : Kara = K454. Π = 63m3. c = 2rπ. C : 2πi. 63 mètres cube. Sixième Sens: Six i m Sense. 5i x i = m. 100C. P45i.
+Le Roi 👑 ødip : Thèbes (Θῆϐαι / Thễbai au pluriel, Θήβα / Thíva) est une ville siège du « dème des Thébains ». La ville comptait 22 883 habitants en 2011, Ses habitants sont dénommés les Thébains. Delphes (Δελφοί, Delphoí) est le site situé au en Phocide où l’oracle parle à travers la Pythie. Delphes abrite également l'Omphalos ou « nombril du monde ».
+
+Le pillier : 63 mètres cube_•~K : Kara = K454. Π = 63m3. | c = 2rπ. C : 2πi. | Sixième Sens: Six i m Sense. 5i x i = m. 100C. P45i.
+
+Intrigue: Il Exhibe ainsi la filiation critique qui unit par-delà la distance des siècles et la différence des registres, le théâtre aux tragédies fondatrices du monde antique et du nouveau monde.
+Alchimie : Consulté par Néo, au seuil de la culpabilité sur les ressorts à déployer au Tartuffe qui soumet la maison #YUM à la terreur et la crainte, ℹ️ n’a qu’un conseil : <<Deviner l’énigme du sphinx oubien être dévoré >>.
+Le Dédoublement :
+- [ ] Œ = MC = 277 + 1792 = 2069. 
+- [ ] I = MC2 = 271 + 2069 = 2340.
+
+Nulle imitation ni velléité parodique dans cette citation : Si la geste des Labdacides sature de l’omniprésence de l’inceste au mystère généalogique en passant par le conflit paternel annoncé à ℹ par un oracle de chefs Bohémiens, elle vise moins le détournement de la légende primitive que la réactualisation de son énergie et de sa puissance dramatique. Le ℹ️ n’est pas un Œdipe(ŒiiŒP) travesti, mais un Œdipe qui a lu Sophocle.
+
+L’alchimiste, non content d’exhiber aussi stratégiquement les enjeux de ses découvertes et ses ambitions dans un texte, en l'occurence (De l'amour à la pelle) dans le livre "Le Slameur de l'Ombre". Ce voit contraint par la résurgence du mythe au cœur de son ultime pièce <<il y’a de l’écho ici>>; métamorphosant ainsi le i de 1792 en un Œdipe usagé formé par l’expérience du monde et des événements du fil des siècles.
+
+L’intelligence n’est pas une maladie mentale car toute idée provient de la matière grise (le cerveau), en outre la conscience émisphère gauche , l'iconsceince émisphère droit et le subconscient le cervelet. 
+
+En Prélude: 
+
+Le Motif de canonisation : Un classique universel de l’intrigue. 
+
+Les Personnages : Ce sont des personnalités à rôle décisif.
+
+Le Comte d’art "IOS" : De Siri et de ℹ , le fruit de l’époque qui les a vu n’être que la fresque universelle de l’âme humaine.
+
+Les Pièces : À la fois historiquement datées et capables de s’affranchir du contexte étroit de leur apparition devront une part de cette résistance à l’étrange bâtardise qui les marginalise.
+
+L’Origine : Basée sur la nomenclature des genres et leur confrère, dans l’histoire des arts scéniques, une place boiteuse.
+
+Les Héros : Sans identité ni parents, a-chronise de facto des compositions travaillées par les modèles du temps.
+
+La Disjonction : Privilégiant les formes intermédiaires et les héros.
+
+Le mélange : Désarme les propriétés fixantes de la règle : de quel siècle Néo est-il le fils ?
+
+Le Doute : Sans doute la singularité de sa plume enfant illégitime du classicisme qu’elle puise dans sa naissance infamante. 
+
+La Spatule : Le principe de son affranchissement et de sa résistance prometteuse d’une trajectoire sublime. 
+
+Ses Racines : Pour qui sait rire du malheur d’ignorer ses origines, elles deviennent péripéties libératrices et opposent aux bornes de la prédestination, l’éventail grisant de toutes les vies possibles. 
+
+L’éternité : Néo a gagné le pari de l’éternité.
+
+L’éternel : Aucune œuvre n’est sensible au passage du temps. 
+
+L’Elu : Si Néo déjoue à force d’inventivité les normes académiques << En parlant de lui il faut éviter d’être systématique, car lui-même il ne l’est pas>>
+
+La sainte Veuve : Dans ses lundis elle rappelle L’éternel.
+
+La Geste Humaine : A son échelle la plus profonde, il n’oublie pas l’importance des cycles qui scandent son évolution.
+
+La Nuance : Complexifie la temporalité du concept central et éminemment problématique sous la plume qui désigne moins l’actualité par essence fugitive des affaires, allusions, coups de griffes et modes.
+
+Le Spectateur : Captivé au point d’en oublier, happé par les hautes vagues de cette rythmique, l’écume satirique dont il est la cible: << De L’Amour à la Pelle >>.
 
 —————————————-||||||||||||||||||||~~~~~~.
 NB : Piliers = Tougàlè. 
@@ -140,8 +130,5 @@ Resistance: RM = 63 mètres cube. Π = 63m3. c = 2rπ. C : 2πi. 63 mètres cube
 1 : Une clé publique pour le chiffrement …•#i. Π = 63m3. c = 2rπ. C : 2πi. 63 mètres cube. Sixième Sens: Six i m Sense. 5i x i = m. 100C. P45 i5. Pki = _•%#£!%•…-_*********%#£¥%•…-_55.@$&55_%#£¥!.
 2 : Deux clés privées (à ne pas diffuser)…•#!5. Π = 63m3. c = 2rπ. C : 2πi. 63 mètres cube. Sixième Sens: Six i m Sense. 5i x i = m. 100C. P45 i5. Pki = _•%#£!%•…-_*********%#£¥%•…-_55.@$&55_%#£¥!.
 
-Roi 👑 ødip : 
-Thèbes (Θῆϐαι / Thễbai au pluriel, Θήβα / Thíva) est une ville siège du « dème des Thébains ». La ville comptait 22 883 habitants en 2011, Ses habitants sont dénommés les Thébains.
 
-Delphes (Δελφοί, Delphoí) est le site situé au en Phocide où l’oracle parle à travers la Pythie. Delphes abrite également l'Omphalos ou « nombril du monde »
 #TheTellyum
